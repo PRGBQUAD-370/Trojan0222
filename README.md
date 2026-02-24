@@ -1,1 +1,1 @@
-# Discliammer this 100% safe and a simulation of real
+# Discliammer this 100% safe and a simulation of real malware
